@@ -1,2 +1,0 @@
-# Samukle.github.io
-Site.
